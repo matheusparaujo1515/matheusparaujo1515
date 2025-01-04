@@ -8,6 +8,4 @@
   [LinkedIn](https://www.linkedin.com/in/matheus-p-araujo/)  
 
   Email: matheus.araujo.data@outlook.com
-  
-- 😄 Pronouns: .He/Him
 
